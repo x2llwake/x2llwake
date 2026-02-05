@@ -2,6 +2,7 @@
 ![Visitas](https://img.shields.io/static/v1?label=Visitas&message=52&color=black&style=for-the-badge&logo=)
 <!-- VIEWS_END -->
 
+![_](https://github.com/user-attachments/assets/ae033172-f73c-47a7-b5fc-381b30c54b5e)
 
 𝑯𝑰!
 𝖆𝖋𝖐, 𝖔𝖓𝖑𝖞 𝖜𝖍𝖎𝖘𝖕.
