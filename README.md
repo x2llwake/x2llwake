@@ -2,7 +2,6 @@
 ![Visitas](https://img.shields.io/static/v1?label=Visitas&message=52&color=black&style=for-the-badge&logo=)
 <!-- VIEWS_END -->
 𝑯𝑰!
-![_](https://github.com/user-attachments/assets/ae033172-f73c-47a7-b5fc-381b30c54b5e)
 
 𝕴𝖙 𝖔𝖓𝖑𝖞 𝖍𝖆𝖕𝖕𝖊𝖓𝖘 𝖙𝖔 𝖒𝖊 𝖎𝖓 𝖙𝖍𝖊 𝕾𝖔𝖓𝖎𝖈 𝖋𝖆𝖓𝖉𝖔𝖒 𝖔𝖗 𝖎𝖓 𝖙𝖍𝖊 𝖇𝖆𝖐𝖊𝖗𝖞.
 
