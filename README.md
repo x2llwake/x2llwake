@@ -1,7 +1,7 @@
 <!-- VIEWS_START -->
 ![Visitas](https://img.shields.io/static/v1?label=Visitas&message=52&color=black&style=for-the-badge&logo=)
 <!-- VIEWS_END -->
-![Denim Tears iphone wallpaper](https://github.com/user-attachments/assets/1ddd049e-3a2f-4d08-9f68-efaf71322e34)
+
 
 𝑯𝑰!
 𝖆𝖋𝖐, 𝖔𝖓𝖑𝖞 𝖜𝖍𝖎𝖘𝖕.
