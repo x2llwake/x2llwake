@@ -1,4 +1,7 @@
 <!-- VIEWS_START -->
+
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=++F%D2%89%CC%87%CD%92%CC%8A%CC%A6%CC%AC%CC%99%CD%96%CC%ACo%CC%B5%CC%81%CC%BD%CC%BF%CC%83%CC%80%CC%9D%CC%A0U%CC%B7%CC%92%CC%89%CD%84%CC%86%CC%92%CD%9A%CD%94%CC%9C%CC%B2N%CC%B8%CD%9B%CD%83%CD%9B%CC%BF%CC%A6%CC%A6%CC%A3d%CC%B5%CC%81%CD%8A%CD%93%CC%A5%CD%95%CC%9F+Y%CC%B5%CD%83%CD%91%CD%90%CC%9F%CC%B1%CC%99o%CC%B4%CC%93%CD%80%CC%99%CC%A3%CC%A6%CD%85U%CC%B5%CC%90%CC%85%CC%AA%CC%AA%CC%A9%CC%B1%CC%99)](https://git.io/typing-svg)
 ![Visitas](https://img.shields.io/static/v1?label=Visitas&message=52&color=black&style=for-the-badge&logo=)
 <!-- VIEWS_END -->
 𝑯𝑰!
