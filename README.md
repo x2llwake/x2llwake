@@ -1,3 +1,3 @@
-![Silver _p](https://github.com/user-attachments/assets/9f3bd7ef-3f2b-4002-9d2d-49250d2d03e1)
+<img width="732" height="743" alt="image" src="https://github.com/user-attachments/assets/d3026aec-5d77-4597-8194-1307f97adc95" />
 
 https://fiv.straw.page
