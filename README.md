@@ -1,7 +1,6 @@
 ![♡](https://github.com/user-attachments/assets/0bd0f23c-832a-4de8-9c48-598ecd2b7774)
 
-![miles morales](https://github.com/user-attachments/assets/0016feb5-7971-4339-9729-5190a2fc1dd4)
-
+![vlone 🛩️ on TikTok](https://github.com/user-attachments/assets/e498e4de-da02-421a-bba7-1992e58155d3)
 
 ![﹝back﹞](https://github.com/user-attachments/assets/3b7450ad-66f6-408c-af56-a2308d33b8a8)
 
