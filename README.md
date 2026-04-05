@@ -5,3 +5,9 @@
 
 ![﹝back﹞](https://github.com/user-attachments/assets/3b7450ad-66f6-408c-af56-a2308d33b8a8)
 
+ <button class="info-button" onclick="toggleInfo()">
+More
+</button>
+<div id="info-box" class="info-box" style="display:none;">
+  
+</div>
