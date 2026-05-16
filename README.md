@@ -8,3 +8,5 @@
    
    
    <img width="418" height="405" alt="Screenshot 2026-05-09 8 11 41 PM" src="https://github.com/user-attachments/assets/671b87ee-82e9-4ce7-8e6e-474b068dab91" />
+
+   [![YouTube](https://img.shields.io/badge/YouTube-Escuchar-blue?logo=youtube)](https://www.youtube.com/watch?v=LUUIcU7ahOE&list=RDLUUIcU7ahOE&start_radio=1)
