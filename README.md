@@ -8,7 +8,7 @@
 <img width="418" height="405" alt="Screenshot 2026-05-09 8 11 41 PM" src="https://github.com/user-attachments/assets/671b87ee-82e9-4ce7-8e6e-474b068dab91" />
 
 
-[ִ ࣪𖤐](https://youtu.be/LUUIcU7ahOE&list=RDLUUIcU7ahOE&start_radio=1)
+[ִ ࣪𖤐](https://youtu.be/wJPEqIni2w&list=RDLUUIcU7ahOE&index=8)
 
 </details>
 
