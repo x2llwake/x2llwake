@@ -3,7 +3,7 @@
 <summary>𝕮𝖑𝖎𝖈𝖐 </summary>
  <div align="center">
 
-[= ࣪𖤐](FbUcn99Mf1s&list=RDLUUIcU7ahOE&index=28)
+[= ࣪𖤐](https://www.youtube.com/watch?v=FbUcn99Mf1s&list=RDFbUcn99Mf1s&start_radio=1)
 
 </div>
 
