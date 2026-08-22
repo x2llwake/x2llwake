@@ -4,7 +4,8 @@
  <div align="center">  
 <a href="https://www.picgifs.com/mini-graphics/"><img src="https://www.picgifs.com/mini-graphics/mini-graphics/pokemon/mini-graphics-pokemon-594237.gif" border="0" /></a>
   
-   [= ࣪𖤐](https://www.youtube.com/watch?v=a9mG4tq3GdA&list=OLAK5uy_mjtktZPTt6lEfA0OSQ-dH-e8pcedGgKqg&index=8)
+   [= ࣪𖤐](https://www.youtube.com/watch?v=a9mG4tq3GdA&list=OLAK5uy_mjtktZPTt6lEfA0OSQ-dH-e8pcedGgKqg&index=8)  <img width="193" height="71" alt="Screenshot 2026-08-22 4 52 27 PM" src="https://github.com/user-attachments/assets/806039bb-0c88-4c03-8174-1ba3974466eb" />
+
 
 </div>
 
