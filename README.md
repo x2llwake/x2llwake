@@ -4,7 +4,7 @@
  <div align="center">  
 <a href="https://www.picgifs.com/mini-graphics/"><img src="https://www.picgifs.com/mini-graphics/mini-graphics/pokemon/mini-graphics-pokemon-594237.gif" border="0" /></a>
   
-   [= ࣪𖤐](https://www.youtube.com/watch?v=d93XddlKqPk&list=OLAK5uy_mjtktZPTt6lEfA0OSQ-dH-e8pcedGgKqg&index=3)
+   [= ࣪𖤐](https://www.youtube.com/watch?v=a9mG4tq3GdA&list=OLAK5uy_mjtktZPTt6lEfA0OSQ-dH-e8pcedGgKqg&index=8)
 
 </div>
 
