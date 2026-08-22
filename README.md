@@ -1,9 +1,9 @@
-<a href="https://www.gifsanimados.org/cat-mini-gifs-99.htm"><img src="https://www.gifsanimados.org/data/media/99/mini-gif-imagen-animada-1137.gif" border="0" alt="mini-gif-imagen-animada-1137" /></a>
+<img src="https://www.picgifs.com/mini-graphics/mini-graphics/pokemon/mini-graphics-pokemon-599810.gif" border="0" /></a>
   <details>
 <summary>𝕮𝖑𝖎𝖈𝖐 </summary>
  <div align="center">  
-<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/1412/1412060sx5e169foi.gif" width=60 height=60 border=0></a>
-
+<a href="https://www.picgifs.com/mini-graphics/"><img src="https://www.picgifs.com/mini-graphics/mini-graphics/pokemon/mini-graphics-pokemon-594237.gif" border="0" /></a>
+  
    [= ࣪𖤐](https://www.youtube.com/watch?v=M3Yr2DdL-N8)
 
 </div>
