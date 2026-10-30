@@ -18,9 +18,6 @@
 <img src="http://dl3.glitter-graphics.net/pub/1027/1027923qwjmeqt30p.gif" width=60 height=60 border=0></a>
 </div>
 
- 
-   
-  
-   
-  
-<img width="736" height="736" alt="!! ★ (1)" src="https://github.com/user-attachments/assets/9ff8caf6-2916-4683-90c4-9a6e9f671c28" />
+
+ <img width="609" height="868" alt="Screenshot 2026-10-30 5 08 11 PM" src="https://github.com/user-attachments/assets/2e36c6b5-35ed-4e96-b2d5-9b1e470774a2" />
+
