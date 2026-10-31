@@ -18,6 +18,5 @@
 <img src="http://dl3.glitter-graphics.net/pub/1027/1027923qwjmeqt30p.gif" width=60 height=60 border=0></a>
 </div>
 
-
- <img width="609" height="868" alt="Screenshot 2026-10-30 5 08 11 PM" src="https://github.com/user-attachments/assets/2e36c6b5-35ed-4e96-b2d5-9b1e470774a2" />
+<img width="1050" height="1498" alt="Tarjeta pixelada de San Valentín" src="https://github.com/user-attachments/assets/9e3bd5db-bcf7-4780-8048-ca97b2320c54" />
 
