@@ -20,3 +20,4 @@
 
 <img width="1050" height="1498" alt="Tarjeta pixelada de San Valentín" src="https://github.com/user-attachments/assets/9e3bd5db-bcf7-4780-8048-ca97b2320c54" />
 
+[![Spotify](https://img.shields.io/badge/Spotify-1DB954?logo=spotify&logoColor=white)](https://open.spotify.com/user/3176dssckzznq5chpvdm6wbeteuy)
