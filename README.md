@@ -31,6 +31,7 @@
 <img src="http://dl3.glitter-graphics.net/pub/1027/1027923qwjmeqt30p.gif" width=60 height=60 border=0></a>
 </div>
 
-<img width="1050" height="1498" alt="Tarjeta pixelada de San Valentín" src="https://github.com/user-attachments/assets/9e3bd5db-bcf7-4780-8048-ca97b2320c54" />
+<img width="1050" height="1498" alt="Tarjeta retro de San Valentín para Erick" src="https://github.com/user-attachments/assets/d7b57bac-aab2-492b-b860-ceacbfd772cd" />
+
 
 [![Spotify](https://img.shields.io/badge/Spotify-1DB954?logo=spotify&logoColor=white)](https://open.spotify.com/user/3176dssckzznq5chpvdm6wbeteuy)
