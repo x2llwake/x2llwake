@@ -29,7 +29,7 @@
    
    <div align="center">
 
-><img src="https://www.picgifs.com/mini-graphics/mini-graphics/pokemon/mini-graphics-pokemon-594237.gif" border="0" /></a>
+<img src="https://www.picgifs.com/mini-graphics/mini-graphics/pokemon/mini-graphics-pokemon-594237.gif" border="0" /></a>
    [= ࣪𖤐](https://www.youtube.com/watch?v=H7dyPGaBEpw&list=RDH7dyPGaBEpw&start_radio=1)  
 
 
