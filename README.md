@@ -31,6 +31,7 @@
 <img src="http://dl3.glitter-graphics.net/pub/1027/1027923qwjmeqt30p.gif" width=60 height=60 border=0></a>
 </div>
 
+<img width="1045" height="1089" alt="Sonic y Knuckles en la Montaña Ardiente" src="https://github.com/user-attachments/assets/05a5da9c-307f-4a12-b1b0-eed4d7879d3b" />
 
 
 [![Spotify](https://img.shields.io/badge/Spotify-1DB954?logo=spotify&logoColor=white)](https://open.spotify.com/user/3176dssckzznq5chpvdm6wbeteuy)
