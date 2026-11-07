@@ -31,7 +31,7 @@
 
 </div>
 
-<img width="736" height="414" alt="_ (18)" src="https://github.com/user-attachments/assets/dddc5163-a76b-449f-8ce6-f15f3e6f0db6" />
+<img width="736" height="414" alt="_ (18)" src="https://github.com/user-attachments/assets/05068f27-6dc5-4e02-82c3-51b63efc6ca2" />
 
   [🍓 ᦓꪻ᥅ꪖ᭙ ᜣꪖᧁꫀ](https://undermoon.straw.page)
  
