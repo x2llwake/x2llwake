@@ -1,8 +1,3 @@
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3176dssckzznq5chpvdm6wbeteuy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
-  </a>
-</p>
 
 
 
@@ -16,11 +11,11 @@
 <summary>𝕮𝖑𝖎𝖈𝖐 </summary>
  <div align="center">  
 
-   [🍓 ᦓꪻ᥅ꪖ᭙ ᜣꪖᧁꫀ](https://undermoon.straw.page)
 
-   <img src="http://dl3.glitter-graphics.net/pub/1027/1027923qwjmeqt30p.gif" width=60 height=60 border=0></a>
-</div>
-   
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3176dssckzznq5chpvdm6wbeteuy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+ 
+ 
    
 </div>
 
@@ -28,6 +23,8 @@
   
    
    <div align="center">
+
+
 
 <img src="https://www.picgifs.com/mini-graphics/mini-graphics/pokemon/mini-graphics-pokemon-594237.gif" border="0" /></a>
    [= ࣪𖤐](https://www.youtube.com/watch?v=H7dyPGaBEpw&list=RDH7dyPGaBEpw&start_radio=1)  
@@ -39,4 +36,8 @@
 
 
 
-[![Spotify](https://img.shields.io/badge/Spotify-1DB954?logo=spotify&logoColor=white)](https://open.spotify.com/user/3176dssckzznq5chpvdm6wbeteuy)
+  [🍓 ᦓꪻ᥅ꪖ᭙ ᜣꪖᧁꫀ](https://undermoon.straw.page)
+ 
+   <img src="http://dl3.glitter-graphics.net/pub/1027/1027923qwjmeqt30p.gif" width=60 height=60 border=0></a>
+</div>
+   
