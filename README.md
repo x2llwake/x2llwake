@@ -29,7 +29,8 @@
 
 </div>
 
-<img width="736" height="414" alt="_ (18)" src="https://github.com/user-attachments/assets/05068f27-6dc5-4e02-82c3-51b63efc6ca2" />
+<img width="1672" height="941" alt="Erizos en ruinas bajo neón retro" src="https://github.com/user-attachments/assets/37eef5df-6d4c-499b-917a-6009469dc0ad" />
+
 
   [🍓 ᦓꪻ᥅ꪖ᭙ ᜣꪖᧁꫀ](https://undermoon.straw.page)
  
