@@ -31,9 +31,7 @@
 
 </div>
 
-<img width="1008" height="1051" alt="Gemini_Generated_Image_50dtfv50dtfv50dt (1)" src="https://github.com/user-attachments/assets/16dcad09-4541-43dd-9b17-4e6a4750a99a" />
-
-
+<img width="736" height="414" alt="_ (18)" src="https://github.com/user-attachments/assets/dddc5163-a76b-449f-8ce6-f15f3e6f0db6" />
 
   [🍓 ᦓꪻ᥅ꪖ᭙ ᜣꪖᧁꫀ](https://undermoon.straw.page)
  
