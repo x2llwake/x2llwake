@@ -2,8 +2,6 @@
 
 
 
-  <img width="480" height="240" alt="Summer Flower Sticker by Sonic the Hedgehog" src="https://github.com/user-attachments/assets/f5d63d37-e64c-48cf-a11f-3f75353fefb6" />
-
 
 
 
