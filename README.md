@@ -35,7 +35,8 @@
 
 </div>
 
-<img width="1045" height="1089" alt="Sonic y Knuckles en la Montaña Ardiente" src="https://github.com/user-attachments/assets/05a5da9c-307f-4a12-b1b0-eed4d7879d3b" />
+<img width="1008" height="1051" alt="Gemini_Generated_Image_50dtfv50dtfv50dt (1)" src="https://github.com/user-attachments/assets/16dcad09-4541-43dd-9b17-4e6a4750a99a" />
+
 
 
 [![Spotify](https://img.shields.io/badge/Spotify-1DB954?logo=spotify&logoColor=white)](https://open.spotify.com/user/3176dssckzznq5chpvdm6wbeteuy)
