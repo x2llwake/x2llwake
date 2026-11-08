@@ -1,7 +1,5 @@
 
-
-<img width="577" height="180" alt="background-remover-1794163427321" src="https://github.com/user-attachments/assets/42dd0de3-0dda-44c3-a84c-c22ce74686e3" />
-
+<img width="577" height="180" alt="background-remover-1794163427321_preview_rev_1" src="https://github.com/user-attachments/assets/e5b66986-5ca0-4c0c-81a4-371ede40aa51" />
 
 
 
