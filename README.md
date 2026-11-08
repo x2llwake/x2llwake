@@ -1,6 +1,7 @@
 <a href="https://www.gifsanimados.org/cat-mini-gifs-99.htm"><img src="https://www.gifsanimados.org/data/media/99/mini-gif-imagen-animada-0101.gif" border="0" alt="mini-gif-imagen-animada-0101" /></a>
 
 
+<img width="577" height="180" alt="background-remover-1794163427321" src="https://github.com/user-attachments/assets/42dd0de3-0dda-44c3-a84c-c22ce74686e3" />
 
 
 
