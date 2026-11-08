@@ -1,4 +1,4 @@
-<img width="200" height="200" alt="_ (2)" src="https://github.com/user-attachments/assets/6ddf17b0-aabd-4e5d-be91-1291be46fafb" />
+<a href="https://www.gifsanimados.org/cat-mini-gifs-99.htm"><img src="https://www.gifsanimados.org/data/media/99/mini-gif-imagen-animada-0101.gif" border="0" alt="mini-gif-imagen-animada-0101" /></a>
 
 
 
