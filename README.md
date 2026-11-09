@@ -1,9 +1,12 @@
 
 <img width="577" height="color=53b14f&ba" alt="background-remover-color=53b14f&ba_preview_rev_1" src="https://github.com/user-attachments/assets/e5b66986-5ca0-4c0c-81a4-371ede40aa51" />
 
-<img width="285" height="16" alt="Screenshot 2026-11-08 8 52 58 PM" src="https://github.com/user-attachments/assets/94238125-2389-4d15-9daa-42f29e40d204" />
+<img width="285" height="16" alt="Screenshot 2026-11-08 8 52 58 PM" src="https://github.com/user-attachments/assets/94238125-2389-4d15-9daa-42f29e40d204" /> <div align="center">  
 
-[𝗡𝗼𝗺𝗶𝗻𝗮𝘁𝗶𝗼𝗻 𝗳𝗼𝗿 𝗯𝗲𝘀𝘁 𝗺𝗮𝗹𝘄𝗮𝗿𝗲 𝗮𝗺𝘆 𝗼𝗳 𝗽𝘁!](https://github.com/pt-hall-of-media)
+
+
+
+[𝗡𝗼𝗺𝗶𝗻𝗮𝘁𝗶𝗼𝗻 𝗳𝗼𝗿 𝗯𝗲𝘀𝘁 𝗺𝗮𝗹𝘄𝗮𝗿𝗲 𝗮𝗺𝘆 𝗼𝗳 𝗽𝘁!](https://github.com/pt-hall-of-media)<div align="center">  
 
   <details>
 <summary>𝕮𝖑𝖎𝖈𝖐 </summary>
