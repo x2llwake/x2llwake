@@ -3,7 +3,7 @@
 
 <img width="285" height="16" alt="Screenshot 2026-11-08 8 52 58 PM" src="https://github.com/user-attachments/assets/94238125-2389-4d15-9daa-42f29e40d204" />
 
-[𝗡𝗼𝗺𝗶𝗻𝗮𝘁𝗶𝗼𝗻 𝗳𝗼𝗿 𝗯𝗲𝘀𝘁 𝗺𝗮𝗹𝘄𝗮𝗿𝗲 𝗮𝗺𝘆 𝗼𝗳 𝗽𝘁]
+[𝗡𝗼𝗺𝗶𝗻𝗮𝘁𝗶𝗼𝗻 𝗳𝗼𝗿 𝗯𝗲𝘀𝘁 𝗺𝗮𝗹𝘄𝗮𝗿𝗲 𝗮𝗺𝘆 𝗼𝗳 𝗽𝘁!](https://github.com/pt-hall-of-media)
 
   <details>
 <summary>𝕮𝖑𝖎𝖈𝖐 </summary>
