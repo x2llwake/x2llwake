@@ -6,7 +6,7 @@
 
 
 
-[𝕹𝖔𝖒𝖎𝖓𝖆𝖙𝖎𝖔𝖓 𝖋𝖔𝖗 𝖒𝖆𝖑𝖜𝖆𝖗𝖊 𝖆𝖒𝖞 𝖔𝖋 𝖕𝖙!](https://github.com/pt-hall-of-media)<div align="center"> 
+[𝖒𝖆𝖑𝖜𝖆𝖗𝖊 𝖆𝖒𝖞 𝖔𝖋 𝖕𝖙!](https://github.com/pt-hall-of-media)<div align="center"> 
 
   <details>
 <summary>𝕮𝖑𝖎𝖈𝖐 </summary>
