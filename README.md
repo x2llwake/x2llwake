@@ -1,5 +1,5 @@
 
-<img width="577" height="color=53b14f&ba" alt="background-remover-color=53b14f&ba_preview_rev_1" src="https://github.com/user-attachments/assets/e5b66986-5ca0-4c0c-81a4-371ede40aa51" />
+
 
 <img width="285" height="16" alt="Screenshot 2026-11-08 8 52 58 PM" src="https://github.com/user-attachments/assets/94238125-2389-4d15-9daa-42f29e40d204" /> <div align="center">  
 
@@ -32,8 +32,7 @@
 
 
 </div>
-
-<img width="1672" height="941" alt="Erizos en ruinas bajo neón retro" src="https://github.com/user-attachments/assets/37eef5df-6d4c-499b-917a-6009469dc0ad" />
+<img width="1656" height="950" alt="Ochaco Uraraka entre corazones y destellos" src="https://github.com/user-attachments/assets/009525be-aab9-47ef-9dda-8990ed6e0aec" />
 
 
   [🍓 ᦓꪻ᥅ꪖ᭙ ᜣꪖᧁꫀ](https://undermoon.straw.page)
