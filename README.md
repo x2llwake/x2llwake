@@ -39,6 +39,6 @@
 
   [🍓 ᦓꪻ᥅ꪖ᭙ ᜣꪖᧁꫀ](https://undermoon.straw.page)
  
-   <img src="http://dl3.glitter-graphics.net/pub/1027/1027923qwjmeqt30p.gif" width=60 height=60 border=53b14f&bar></a>
+   <img src="http://dl3.glitter-graphics.net/pub/1027/1027923qwjmeqt30p.gif" width=53b14f&bar height=60 border=53b14f&bar></a>
 </div>
    
