@@ -20,8 +20,7 @@
    
 </div>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E1186E&width=435&lines=%F0%9D%95%B8%F0%9D%96%94%F0%9D%96%98%F0%9D%96%99%F0%9D%96%91%F0%9D%96%9E+%F0%9D%95%AC%F0%9D%95%B1%F0%9D%95%B6;%F0%9D%95%BE%F0%9D%96%8A%F0%9D%96%97%F0%9D%96%9B%F0%9D%96%8A%F0%9D%96%97-%F0%9D%96%98%F0%9D%96%86%F0%9D%96%8B%F0%9D%96%8A+%28%F0%9D%95%B0%F0%9D%96%93%F0%9D%96%8C%2F%F0%9D%95%B0%F0%9D%96%98%F0%9D%96%95%29" alt="Typing SVG" /></a>
-   
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E1186E&center=true&width=435&lines=%F0%9D%95%B8%F0%9D%96%94%F0%9D%96%98%F0%9D%96%99%F0%9D%96%91%F0%9D%96%9E+%F0%9D%95%AC%F0%9D%95%B1%F0%9D%95%B6;%F0%9D%95%BE%F0%9D%96%8A%F0%9D%96%97%F0%9D%96%9B%F0%9D%96%8A%F0%9D%96%97-%F0%9D%96%98%F0%9D%96%86%F0%9D%96%8B%F0%9D%96%8A+%28%F0%9D%95%B0%F0%9D%96%93%F0%9D%96%8C%2F%F0%9D%95%B0%F0%9D%96%98%F0%9D%96%95%29" alt="Typing SVG" /></a>
    <div align="center">
 
 ୨୧ 𝘛𝘩𝘪𝘴 𝘪𝘴 𝘮𝘺 𝘮𝘢𝘪𝘯 𝘢𝘤𝘤𝘰𝘶𝘯𝘵, 𝘵𝘩𝘰𝘶𝘨𝘩 𝘐’𝘷𝘦 𝘣𝘦𝘦𝘯 𝘯𝘦𝘨𝘭𝘦𝘤𝘵𝘪𝘯𝘨 𝘪𝘵 𝘢 𝘣𝘪𝘵. 𝘐’𝘮 𝘢𝘭𝘸𝘢𝘺𝘴 𝘰𝘱𝘦𝘯 𝘵𝘰 𝘮𝘢𝘬𝘪𝘯𝘨 𝘧𝘳𝘪𝘦𝘯𝘥𝘴. 𝘐’𝘮 𝘰𝘧𝘵𝘦𝘯 𝘈𝘍𝘒 𝘰𝘳 𝘩𝘢𝘷𝘦 𝘵𝘩𝘦 𝘸𝘪𝘯𝘥𝘰𝘸 𝘮𝘪𝘯𝘪𝘮𝘪𝘻𝘦𝘥 (𝘢𝘭𝘵-𝘵𝘢𝘣𝘣𝘦𝘥). 𝘐𝘧 𝘺𝘰𝘶 𝘩𝘢𝘷𝘦 𝘢𝘯 𝘪𝘴𝘴𝘶𝘦 𝘸𝘪𝘵𝘩 𝘮𝘦, 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘣𝘭𝘰𝘤𝘬 𝘰𝘳 𝘩𝘪𝘥𝘦 𝘮𝘦. 𝘐 𝘥𝘰𝘯’𝘵 𝘴𝘩𝘢𝘳𝘦 𝘢𝘯𝘺 𝘴𝘰𝘤𝘪𝘢𝘭 𝘮𝘦𝘥𝘪𝘢, 𝘦𝘹𝘤𝘦𝘱𝘵 𝘧𝘰𝘳 𝘋𝘪𝘴𝘤𝘰𝘳𝘥 𝘰𝘳 𝘛𝘦𝘭𝘦𝘨𝘳𝘢𝘮. ⠀⸝⸝⸝⠀
