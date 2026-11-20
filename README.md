@@ -20,8 +20,7 @@
    
 </div>
 
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=000000&width=435&lines=%F0%9D%93%B6%F0%9D%93%B8%F0%9D%93%BC%F0%9D%93%BD%F0%9D%93%B5%F0%9D%94%82+%F0%9D%93%90%F0%9D%93%95%F0%9D%93%9A;+%F0%9D%96%98%F0%9D%96%8A%F0%9D%96%97%F0%9D%96%9B%F0%9D%96%8A%F0%9D%96%97+%F0%9D%96%98%F0%9D%96%86%F0%9D%96%8B%F0%9D%96%8A+%F0%9D%96%8A%F0%9D%96%93%F0%9D%96%8C%2F%F0%9D%96%8A%F0%9D%96%98%F0%9D%96%95.)  
-  
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E1186E&width=435&lines=%F0%9D%95%B8%F0%9D%96%94%F0%9D%96%98%F0%9D%96%99%F0%9D%96%91%F0%9D%96%9E+%F0%9D%95%AC%F0%9D%95%B1%F0%9D%95%B6;%F0%9D%95%BE%F0%9D%96%8A%F0%9D%96%97%F0%9D%96%9B%F0%9D%96%8A%F0%9D%96%97-%F0%9D%96%98%F0%9D%96%86%F0%9D%96%8B%F0%9D%96%8A+%28%F0%9D%95%B0%F0%9D%96%93%F0%9D%96%8C%2F%F0%9D%95%B0%F0%9D%96%98%F0%9D%96%95%29" alt="Typing SVG" /></a>
    
    <div align="center">
 
