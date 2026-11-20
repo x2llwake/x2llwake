@@ -1,5 +1,6 @@
 
-<img width="" height="300" alt="53b14f&bar" src="https://github.com/user-attachments/assets/dd14bacf-f64c-48dd-8749-0c58fefecda7" />
+<img width="" height="300" alt="53b14f&bar" src="https://github.com/user-attachments/assets/dd14bacf-f64c-48dd-8749-0c58fefecda7" />  <img width="" height="300" alt="background-remover-53b14f&bar" src="https://github.com/user-attachments/assets/ab7bd418-00e8-44d7-aa1d-823e1c750424" />
+
 
 
 <img width="285" height="16" alt="Screenshot 2026-11-08 8 52 58 PM" src="https://github.com/user-attachments/assets/94238125-2389-4d15-9daa-42f29e40d204" /> <div align="center">  
