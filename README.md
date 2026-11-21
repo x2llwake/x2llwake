@@ -4,7 +4,7 @@
 <div align="center"> 
 
 <img width="285" height="16" alt="Screenshot 2026-11-08 8 52 58 PM" src="https://github.com/user-attachments/assets/94238125-2389-4d15-9daa-42f29e40d204" /> <div align="center">  
-[𝖒𝖆𝖑𝖜𝖆𝖗𝖊 𝖆𝖒𝖞 𝖔𝖋 𝖕𝖙!](https://github.com/pt-hall-of-media)<div align="center"> 
+[ 𝖕𝖙 𝖒𝖆𝖑𝖜𝖆𝖗𝖊 𝖆𝖒𝖞!](https://github.com/pt-hall-of-media)<div align="center"> 
  <div align="center"> 
 <img width="" height="200" alt="background-remover-53b14f&bar" src="https://github.com/user-attachments/assets/84a6e2ce-6f98-4ce0-9ff9-71e95a3b79b8" />
 
